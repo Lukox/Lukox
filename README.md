@@ -1,6 +1,4 @@
 ### Hi there 👋, I'm Filip
-🔭 University Courses
-
 
 - 📫 Email **filip.luk.2003@gmail.com**
 
